@@ -1,1 +1,0 @@
-# Parthasarathi_dIgitalpartfollo
